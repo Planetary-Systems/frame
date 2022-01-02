@@ -1,1 +1,1 @@
-# Frame - a social network for you
+# PLanetary Systems, Inc
